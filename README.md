@@ -9,7 +9,7 @@ Defintions & Intro's:
 
 [Love-merriam-webster](https://www.merriam-webster.com/dictionary/love#:~:text=(Entry%201%20of%202),still%20very%20much%20in%20love.)
 
-Love Stores 🥰😎😂:
+Love Stories 🥰😎😂:
 =====================
 
 https://www.oprahdaily.com/life/relationships-love/a30472782/true-romantic-stories/
